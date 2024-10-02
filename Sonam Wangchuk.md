@@ -1,0 +1,3 @@
+**Sonam Wangchuk** (born 1 September 1966) is an Indian engineer, innovator and education reformist. He is the founding-director of the [Students' Educational and Cultural Movement of Ladakh](https://en.wikipedia.org/wiki/Students%27_Educational_and_Cultural_Movement_of_Ladakh "Students' Educational and Cultural Movement of Ladakh") (SECMOL), which was founded in 1988 by a group of students who had been in his own words, the 'victims' of an alien education system foisted on [Ladakh](https://en.wikipedia.org/wiki/Ladakh "Ladakh"). He is also known for designing the SECMOL campus that runs on solar energy and uses no [fossil fuels](https://en.wikipedia.org/wiki/Fossil_fuels "Fossil fuels") for cooking, lighting or heating. 
+
+
