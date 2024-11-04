@@ -2,14 +2,14 @@ is what you must hear whenever you talk to any capitalist. "*It's markets bro!*"
 
 Following is a graph of the real wage growth of US population since 2019. 
 
-![[images/Pasted image 20241026194712.png]]
+![[Pasted image 20241026194712.png]]
 *Real Wage is the inflation adjusted wage*
 
 With just one look at this graph, you might see the most "capitalist" country is hammering down the rich. The real income growth is the highest amongst the poor and in negative for the ultra rich!
 
 Why is an uber "capitalist" country like the USA incentivizing growth of the poor class rather than the rich? 
 
-![[images/Pasted image 20241026195618.png]]
+![[Pasted image 20241026195618.png]]
 
 Again in the above chart, we see that the after tax income of the lower quintile population is adjusted via cash transfers, unemployment benefits, food stamps, etc. This cause them to in fact have more income than the richer quintiles. 
 
@@ -35,10 +35,10 @@ Excessive inequality can also harm economic growth:
 
 Lets have a look at the real income growth of Indian wage earners
 
-![[images/Pasted image 20241026200401.png]]
+![[Pasted image 20241026200401.png]]
 
 Apart from the casual wage earners are the only one with positive CAGR and that to is very less. 
 
-![[images/Pasted image 20241026201324.png]]
+![[Pasted image 20241026201324.png]]
 
 It is clear from the above chart, there is a stagnant wage growth in India across both agri and non agri field. I haven't even mentioned about property rights not being absolute and how the government should correct the failure of pre distribution of income. Next time!
