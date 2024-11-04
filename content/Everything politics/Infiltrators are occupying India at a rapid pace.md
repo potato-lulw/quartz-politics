@@ -54,7 +54,7 @@ This is the first point in the Election Commission of India' s Model Code of Con
 
 `Infilitrators are not only raping our Adivasi sisters but also dismembering their bodies into 50 pieces. This is the condition of Jharkhand now. Hindus created this land called Bharat and will make Bharat ‘Vishwaguru’ in the future`
 
-														- Hemanta Sarma
+- Hemanta Sarma
 
 
 Is this not asking for voter on the basis of religion? Is this not feat mongering? Who are these Arfan, Irfan, Ansari, and Alamgir-Alam? Who has looted their daughters, land, government and pride? 
