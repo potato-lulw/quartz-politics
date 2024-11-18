@@ -13,3 +13,5 @@ Unless you are living under a rock, there are widespread protests in Mumbai agai
 6. Opposition claims that any private builder will have to buy 40% TDR (Transferable development rights) from Adani's DRPPL (80% Adani group + 20% BMC). This will create a Monopoly. [Link](https://www.youtube.com/watch?v=JoL_sg5pfi4)
 
 This has become a major issue in 2024 Assembly elections which will favor MVA. 
+
+#election #dharavi #bjp #protest 
